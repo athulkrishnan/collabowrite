@@ -1,1 +1,1 @@
-The doorbell rang. It had to be him.
+The doorbell rang. He woke up from his sleep.
